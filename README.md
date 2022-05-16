@@ -6,6 +6,7 @@ digestive
 Fox's cream
 chocolate Hobnob x2
 Italian biscuit
+Jammie Dodger
 custard cream x2
 Jaffa Cake
 shortbread
